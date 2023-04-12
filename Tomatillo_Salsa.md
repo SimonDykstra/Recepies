@@ -6,7 +6,8 @@
 - 1 Jalapeno pepper
 - Cilantro, as much as you like
 - 1x Onion, sweet or yellow
-- Salt and pepper
+- 1/2 tsp salt
+- 1/2 tsp pepper
 - 1-2 tbps. Apple cider vinegar
 - 1x Avacado 
 
